@@ -10,3 +10,7 @@
 Richarte81/Richarte81 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+i dont kmow this
+en español hay alguien 
+no der como va esto 
+ni para que sirve 
